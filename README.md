@@ -21,7 +21,7 @@
 <img src = "https://github.com/user-attachments/assets/beff5faf-6a76-459e-abbd-d57d00dff642" >
 
 ## Full Screen Video Link 
-https://drive.google.com/file/d/1no7fTHl1j2GHBVYzofkkES9gSx2sWD_X/view?usp=sharing
+https://drive.google.com/file/d/1lSYp8BuKWN4dqRsB4Z5t3oXO4g6Wz-c1/view?usp=sharing
 
 # Video
 
