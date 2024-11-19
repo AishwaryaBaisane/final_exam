@@ -18,7 +18,6 @@
 
 
 ## Full Screen Video Link 
-https://drive.google.com/file/d/1RqWXnH_62x7cOUubkhXE4eWtitY9bo_e/view?usp=sharing
 
 
 # Video
